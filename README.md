@@ -10,5 +10,6 @@ Morto. PS. How amazing is GitHub btw!!
 https://www.youtube.com/watch?v=b9fUdJdlExU
 Live by rules that are defind in every human, a collective of minds set on making the world a better place. It doesnt get much better. 
 Explain the sludge. How to elimanate a problem without even explaining that problem. (solved)
-The function of a mmaster piece is to last forever. 
-Every function has an an un-known. 
+The function of a mmaster (sorry I stutter) piece is to last forever. 
+Every function has an un-known.
+People have been killed for no reason?.
