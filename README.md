@@ -13,3 +13,15 @@ Explain the sludge. How to elimanate a problem without even explaining that prob
 The function of a mmaster (sorry I stutter) piece is to last forever. 
 Every function has an un-known.
 People have been killed for no reason?.
+This is a list of unsoreted dribble. 
+S = most distructive force. 
+Its a dream.
+
+
+
+:D
+
+
+
+<3
+Love Morto.
