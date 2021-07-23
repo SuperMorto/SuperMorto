@@ -17,7 +17,7 @@ This is a list of unsoreted dribble.
 S = most distructive force. 
 Its a dream.
 
-
+UN-SERFER : Meaning to un serf. 
 
 :D.merc.
 
